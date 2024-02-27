@@ -28,4 +28,3 @@
 
 ## Working Project Recording
 
-https://drive.google.com/file/d/1aaQxGMqGSI3Iv6pQvtYcNkVxxqFfw1Z7/view
